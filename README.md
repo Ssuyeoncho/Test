@@ -8,4 +8,4 @@
 
 ![GD](https://thumbnews.nateimg.co.kr/view610///news.nateimg.co.kr/orgImg/ts/2021/04/05/869695_604625_49_org.jpg "GD")
 
-.[권지용입니다.](https://thumbnews.nateimg.co.kr/view610///news.nateimg.co.kr/orgImg/ts/2021/04/05/869695_604625_49_org.jpg)
+[권지용입니다.](https://thumbnews.nateimg.co.kr/view610///news.nateimg.co.kr/orgImg/ts/2021/04/05/869695_604625_49_org.jpg)
