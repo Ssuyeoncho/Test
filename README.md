@@ -4,4 +4,4 @@
 
 안녕
 
-![jiyong](https://www.google.com/url?sa=i&url=https%3A%2F%2Fnews.nate.com%2Fview%2F20210405n27479&psig=AOvVaw0inZVKkwtJgJjBGAQRhLOx&ust=1635933871540000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNje1ea2-fMCFQAAAAAdAAAAABBG "jiyong")
+![](https://news.nate.com/view/photo?url=https://thumbnews.nateimg.co.kr/view610///news.nateimg.co.kr/orgImg/ts/2021/04/05/869695_604625_49_org.jpg)
